@@ -1,0 +1,4 @@
+- 👋 Halò, is mise @deasaiche.
+- 👀 Tha ùigh agam ann an bathar-bog le còd fosgailte.
+- 💞️ Bidh mi ag iarraidh co-obraich air docamaideadh agus ionadaileadh.
+- 😄 Riochdairean: e/esan.
